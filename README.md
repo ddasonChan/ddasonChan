@@ -1,2 +1,2 @@
 - 👋 Hi, I’m @ddasonChan
-- Record myself code step by step
+- 嘿嘿嘿
